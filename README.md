@@ -282,6 +282,8 @@ Cybersecurity Intern — Batch B084
 **Week:** 01
 
 **LinkedIn:**  
+https://lnkd.in/p/gFFUXuxF
+
 
 
 **GitHub:**  
